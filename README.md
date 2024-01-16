@@ -27,4 +27,4 @@
 
 ## Contact
 ✉️ wwnss1411@gmail.com  
-📄 [🧑🏻‍💻데이터 엔지니어로 향하는 여정](https://wwns1411.tistory.com/)
+🖋️ [데이터 엔지니어로 향하는 여정](https://wwns1411.tistory.com/)
