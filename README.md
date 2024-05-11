@@ -12,4 +12,4 @@
 
 ## Contact
 ✉️ wwnss1411@gmail.com  
-🖋️ [데이터 엔지니어를 꿈꾸다](https://wwns1411.tistory.com/)
+🖋️ [Jun's Journey](https://wwns1411.tistory.com/)
