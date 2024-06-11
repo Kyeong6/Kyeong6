@@ -12,4 +12,3 @@
 
 ## Contact
 ✉️ wwnss1411@gmail.com  
-🖋️ [Kyeong6's Journey](https://wwns1411.tistory.com/)
